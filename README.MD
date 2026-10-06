@@ -1,2 +1,0 @@
-Análisis Avanzado y
-Documentación
